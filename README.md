@@ -1,2 +1,0 @@
-# Mine
-My profile
